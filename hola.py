@@ -1,2 +1,1 @@
-mandandome cagadasq
-Dale rojo
+ey bawss
